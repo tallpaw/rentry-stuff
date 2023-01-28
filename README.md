@@ -6,3 +6,4 @@ https://rentry.co/unnaturalbeing - pokepasta themed , glitchy red , m/w liam
 https://rentry.co/bloodshowers - another pokepasta themed rentry
 https://rentry.co/-courts - courtney pokemon themed rentry, m/w liam.
 https://rentry.co/PUSSlNBOOTS - puss in boots themed rentry, m/w liam
+https://rentry.co/SUMM3R - just a pokemone themed rentry w/ childish gambino music
