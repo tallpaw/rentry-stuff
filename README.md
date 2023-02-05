@@ -10,3 +10,4 @@ https://rentry.co/SUMM3R - just a pokemone themed rentry w/ childish gambino mus
 https://rentry.co/mafuens - pjsk rentry
 https://rentry.co/kalem - ticci toby rentry
 https://rentry.co/ninas_obsession - nina & jeff rentry
+https://rentry.co/ohedo_julia_night - lmao a rentry w a bunch of ijustwannahavefun art
