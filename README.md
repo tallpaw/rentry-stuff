@@ -1,2 +1,2 @@
 # up to date rentry's
-https://rentry.co/x44gy - here they r
+https://rentry.co/bazrentrys - here they r
